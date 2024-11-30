@@ -1,4 +1,4 @@
-*This Is A Official DASC© Article That You Can Edit To Improve At Anytime Feel Free To Edit & Improve The Repository Ay Anytime*
+*This Is A Official DASC© Article That You Can Edit To Improve At Anytime Feel Free To Edit & Improve The Repository Ay Anytime Forking This Page Is Recommended Instead Of Directly Editing This Page*
 >[!WARNING]
 >**❗️ | This Page Contains A Warning Hint:** You Are Forbidden To Annoy Other DASCians©
 # If You Annoy DASCians© Here's What To Do
